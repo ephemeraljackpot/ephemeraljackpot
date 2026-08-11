@@ -9,4 +9,4 @@
 <p align="center">wonder who drew this ^^^ oh wait it was me snrk </p>
 <p align="center">sign my atabook joyously</p>
 <p align="center">discord: sepulchralcessation</p>
-<p align="center">08 / 08 / 26</p>
+<p align="center">08 / 26</p>
