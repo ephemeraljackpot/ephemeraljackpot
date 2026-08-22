@@ -4,7 +4,8 @@
 
 </div>
 
-<img width="1192" height="1199" alt="image" src="https://github.com/user-attachments/assets/df8ffcda-9b44-40f3-9221-a1b360ee8ce2" />
+<img width="907" height="1251" alt="image" src="https://github.com/user-attachments/assets/4f2d1c5a-b8be-45ce-86b8-6e79aaad8af3" />
+
 
 
 <p align="center">wonder who drew this ^^^ oh wait it was me snrk </p>
