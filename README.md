@@ -9,6 +9,6 @@
 
 
 <p align="center">wonder who drew this ^^^ oh wait it was me snrk </p>
-<p align="center">sign my atabook joyously</p>
+<p align="center">my commissions are literally always open contact me if you want specifics ( HUMAN ONLY )</p>
 <p align="center">discord: sepulchralcessation</p>
 <p align="center">08 / 26</p>
