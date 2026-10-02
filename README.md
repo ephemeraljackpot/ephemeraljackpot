@@ -4,9 +4,10 @@
 
 </div>
 
-<img width="1350" height="1620" alt="1000004728" src="https://github.com/user-attachments/assets/3dbe36b0-6592-4809-9a8e-16c8106bbdc9" />
+<img width="1425" height="1620" alt="1000004762" src="https://github.com/user-attachments/assets/fa596300-c102-4875-87a4-25d6c5a35b5f" />
 
 
-<p align="center">art you typically see here is by me </p>
+
+<p align="center">art you typically see here is by me ( gay ppl )</p>
 
 <p align="center">discord: sepulchralcessation</p>
