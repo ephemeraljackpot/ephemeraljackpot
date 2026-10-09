@@ -10,6 +10,7 @@
 
 
 
+<p align="center">im not one for dnis but if you enjoy or associate with dol ( degrees of lewditiy ) do not FUCKING talk to me</p>
 <p align="center">art you typically see here is by me ( gay ppl )</p>
 
 <p align="center">discord: sepulchralcessation</p>
