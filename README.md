@@ -4,18 +4,7 @@
 
 </div>
 
-<img width="2095" height="1620" alt="1000005178" src="https://github.com/user-attachments/assets/091edf15-e981-4ed0-be71-93f5bbc682cb" />
-
-
-
-
-
-
-
-
-
-
-
+<img width="1642" height="1620" alt="1000005268" src="https://github.com/user-attachments/assets/b5c9b1be-0511-4e23-b0e1-752edef3ea6c" />
 
 <p align="center">art you typically see here is by me ( gay ppl )</p>
 
