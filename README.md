@@ -4,10 +4,10 @@
 
 </div>
 
-<img width="2095" height="1620" alt="1000005178" src="https://github.com/user-attachments/assets/e5d642c3-c46c-4f3c-8a58-2f98e6211658" />
+<img width="1393" height="1657" alt="1000005330" src="https://github.com/user-attachments/assets/65857be9-0b99-4a35-9b6e-971f0ad21a2c" />
 
 
-<p align="center">if youre a ponytown commission artist please for the love of anything PROVIDE EXAMPLES SOMEWHERE I dont want to reject people if i think their art is not what im looking for FUCK</p>
+
 
 <p align="center">art you typically see here is by me ( gay ppl )</p>
 
