@@ -9,6 +9,6 @@
 
 
 
-<p align="center">art you typically see here is by me ( gay ppl )</p>
+<p align="center">art you typically see here is by me ( men with a hint of fruit )</p>
 
 <p align="center">discord: sepulchralcessation</p>
